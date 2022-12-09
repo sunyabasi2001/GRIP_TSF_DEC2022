@@ -1,1 +1,0 @@
-# GRIP_TSF_DEC2022
